@@ -1,0 +1,1 @@
+# bappy_globallifegoods2
